@@ -3,7 +3,7 @@
 - 🔭 I’m currently working on HonkOS, and Miam
 - 🌱 I’m currently learning stuff.
 - 👯 I’m looking to collaborate with cool bois!
-- 🤔 I’m looking for help with code!
+- 🤔 I’m looking for help with, well, idunno maybe my english
 - 💬 Ask me about anything!
 - 📫 How to reach me: 4061#4061
 - 😄 Pronouns: he/him(yeah, he, not she)
