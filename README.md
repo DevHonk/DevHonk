@@ -2,7 +2,7 @@
 
 - 🔭 I’m currently working on HonkOS, and Miam
 - 🌱 I’m currently learning stuff.
-- 👯 I’m looking to collaborate ~~with 42 pls~~
+- 👯 I’m looking to collaborate with cool bois!
 - 🤔 I’m looking for help with code!
 - 💬 Ask me about anything!
 - 📫 How to reach me: 4061#4061
